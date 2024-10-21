@@ -1,9 +1,14 @@
-m1 air: while you don't have budget
-https://www.applegadgetsbd.com/product/macbook-air-m1-8256gb-13-inch-space-gray
-starting price: 95k
+1. Wasn't he waiting for this opportunity!    
+ 
+    https://kiobostha.com/product/iphone-15
 
-m1 pro: while you don't have budget but want some heavy task. having fan
-https://www.applegadgetsbd.com/product/macbook-pro-m1-8256gb-13-inch-space-gray
-starting price 124k
+    Prices start from  88,500 BDT
 
-m2 pro base edition: This is for you - will be good for you.
+   
+2. When the dream phone is the best deal!
+ 
+   https://kiobostha.com/product/iphone-15-pro-max
+   
+   Prices start from 152,999 BDT
+   
+ 4. You Will get such Beautiful offers only at - https://kiobostha.com/ 
